@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sharonphilips
+- 👀 I’m interested in meeting people of likeminds
+- 🌱 I’m currently learning UI UX design
+- 💞️ I’m looking to collaborate on everything around product design and UI/UX
+- 📫 FEEL FREE TO REACH OUT TO ME
